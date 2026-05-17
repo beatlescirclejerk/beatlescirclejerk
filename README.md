@@ -4,6 +4,6 @@
 　　 　　　　 　　  　　　 　　 [![The-Beatles-A-Hard-Day-s-Night.gif](https://i.postimg.cc/XqRrVTTV/The-Beatles-A-Hard-Day-s-Night.gif)](https://postimg.cc/H8tYzPYK)
 
 
-　　 　　　 　　　　　 　　 　　[letterboxd](https://letterboxd.com/prussiankingdom/)◞ ݃　[picmix](https://www.picmix.com/profile/hetalia)◞ ݃　[spacehey](https://spacehey.com/ahdn)◞ ݃　[last.fm](https://www.last.fm/user/SP00KWAVE)◞ ݃　[ata](https://soldier.atabook.org/)◞ ݃　[straw](https://axispowershetalia.straw.page.com)
+　　 　　　 　　　　　 　　 　　[letterboxd](https://letterboxd.com/prussiankingdom/)◞ ݃　[picmix](https://www.picmix.com/profile/hetalia)◞ ݃　[spacehey](https://spacehey.com/ahdn)◞ ݃　[last.fm](https://www.last.fm/user/SP00KWAVE)◞ ݃　[ata](https://soldier.atabook.org/)◞ ݃　[straw](https://axispowershetalia.straw.page)
 
 [![eed856309e0ef6189c3298f32eb2f180c1173a0e.gif](https://i.postimg.cc/9FzfVKqj/eed856309e0ef6189c3298f32eb2f180c1173a0e.gif)](https://postimg.cc/rKXTNhJh)
